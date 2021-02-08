@@ -1,1 +1,3 @@
 # inf232-190103446
+Few words about myself.
+My name is Aruzhan, I am 18 years old and I am in my second year of engineering at the Suleyman Demirel University. At the moment, I am engaged in self-development, read books, adjust the regime and nutrition, learn various new areas and actively go in for sports. Since I have been in my hometown at home for a year, I am also busy with household chores and try to combine all this. Fortunately, I do it, because I was incredibly lucky with my family. These are the best people in my life! Who do not spare anything for me, provide opportunities for my development and help me in all my endeavors.
